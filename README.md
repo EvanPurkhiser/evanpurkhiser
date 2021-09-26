@@ -1,4 +1,4 @@
-→ **Evan / Age 30 / Engineer + Happy Hardcore DJ**
+**Evan / 30 / Engineer + Trance / HHC DJ**
 
 I am a software engineer who is passionate about building high quality systems, tools, and applications.
 
